@@ -11,4 +11,4 @@ I want to build a technology company that helps create many jobs and develops my
 
 #### My slogan is > Everything you can imagine is real.
 #### My Fb  [TuanPhamNgoc](https://www.facebook.com/LeoPham.1504/).
-#### [My Blog](https://phamngoctuan0110.blogspot.com/).
+#### And this is [My Blog](https://phamngoctuan0110.blogspot.com/).
