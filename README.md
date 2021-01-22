@@ -1,6 +1,6 @@
 ## **Hi there** 👋
 
-### My name is Tuan Pham and now I am learning in University of Engineering and Technolgy.
+### My name is Tuan Pham and now I am learning in University of Engineering and Technology.
 #### Short-term goal ####
 I want to learn, challenge myself in real working environment, be given the chance to join real projects.
 I think that skills as well as for later work.
