@@ -2,10 +2,8 @@
 
 ### My name is Tuan Pham and now I am student at University of Engineering and Technology.
 #### Enthusiastic responsibility and discipline are vital
-#### Short-term goal 
-I want to learn, challenge myself in real working environment, be given the chance to join real projects.
+#### Short-term goals: I want to learn, challenge myself in real working environment, be given the chance to join real projects.
 I think that skills as well as for my further work.
-
 
 #### My slogan is "Everything you can imagine is real."
 ### Contact me for work: tuanpn.tb@gmail.com
