@@ -7,5 +7,5 @@ I think that skills as well as for my further work.
 
 #### My slogan is "Everything you can imagine is real."
 ### Contact me for work: tuanpn.tb@gmail.com
-#### My Fb  [TuanPhamNgoc](https://www.facebook.com/LeoPham.1504/).
+<!-- #### My Fb  [TuanPhamNgoc](https://www.facebook.com/LeoPham.1504/). -->
 #### And this is [My Blog](https://phamngoctuan0110.blogspot.com/).
